@@ -6,9 +6,8 @@
 
 - 🌱 I’m currently learning **Machine Learning**
 
-- 📫 How to reach me **specialsarvesh06@gmail.com**
+- 📫 How to reach me **bsarvesh1001@gmail.com**
 
-- 📄 Know about my experience:-'enter drive link'
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
